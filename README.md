@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anth0nyInestimavel
 - 👀 I’m interested in Games, Programming and maybe even modding, i like games like hollow knight, terraria, minecraft and BTD6
-- 🌱 I’m currently learning at 10th grade
+- 🌱 I’m currently learning at 11th grade
 - 💞️ I’m looking to collaborate on learning
 - 📫 How to reach me anthony.salvador@escola.pr.gov.br
 
